@@ -1,1 +1,1 @@
-internship projects
+Internship projects
